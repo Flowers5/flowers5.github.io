@@ -1,5 +1,16 @@
-Here you can say lots of fun things about your site.
+This site is for my thoughts.
+UNFILTERED!
+UNEDITED!
+UNAPOLOGETIC!
 
-Maybe say a some things about yourself.
+I am a student at the University of Houston.
+I love:
+Basketball
+Vexillology
+Cartography
+Political Theory
 
-Or maybe what you plan to blog about.
+I blog about whatever the heck I wanna...!!! 
+
+Problem?
+Come get me!
