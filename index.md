@@ -1,6 +1,4 @@
-A Write to Remember
-
-
+A Write to Remember<br>
 I love:
 - Coding<br>
 - Vexillology<br>
