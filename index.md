@@ -2,7 +2,7 @@ A Write to Remember
 
 
 I love:
-\nCoding
-\nVexillology
-\nPolitics
-\nGeography
+- Coding<br>
+- Vexillology<br>
+- Politics<br>
+- Geography<br>
